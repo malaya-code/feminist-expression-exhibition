@@ -31,12 +31,12 @@ I hope my art provides solace for the hushed, and unabashedly bares nakedness to
 ### 1. BODY (Sold)
 **Markers on canvas | 14×11 inches**
 
-Explores bodily autonomy, medical violence, and reclaiming ownership of one's physical self. Accompanied by an [original poem](https://www.malayawonders.info/body) interrogating whose body gets to belong to whom.
+Explores bodily autonomy, medical violence, and reclaiming ownership of one's physical self. Accompanied by an [original poem](https://www.malayawonders.info/poems/body) interrogating whose body gets to belong to whom.
 
 ### 2. Sis, Life's a Paradox
 **Alcohol-resistant markers on canvas | 30×20 inches**
 
-Confronts paradoxes of desire, violence, worship, and selfhood through bold text and vivid imagery. Read the [accompanying poem](https://www.malayawonders.info/sis-paradox).
+Confronts paradoxes of desire, violence, worship, and selfhood through bold text and vivid imagery. Read the [accompanying poem](https://www.malayawonders.info/poems/sis-paradox).
 
 ### 3. A Burning Fire: Sula Ablaze
 **Markers on canvas | 40×30 inches**
